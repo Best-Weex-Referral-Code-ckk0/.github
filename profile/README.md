@@ -1,4 +1,4 @@
-# How to Use WEEX Referral Code (**TOPTOP**) in 2025
+# How to Use WEEX Referral Code (**ckk0**) in 2025
 
 **Weex** is a global digital asset exchange offering ultra-fast trading infrastructure, competitive fees, and a secure environment for both individual and institutional traders. Whether you're building a trading bot, scalping intraday, or holding long-term positions — Weex is built to scale with your strategy.
 
